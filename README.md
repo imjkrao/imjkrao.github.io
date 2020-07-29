@@ -1,4 +1,7 @@
-# imjkrao.github.io
+# Jeevankrishna
+Dublin ,IE 
+
+raojk33@hotmail.com
 
 I enjoy learning new language, knowing about awesome packages and it's capability. Experiment and implementing it in my small projects.
 
